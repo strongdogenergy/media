@@ -13,3 +13,7 @@
 # Campo Militar 2
 
 ![Dog Park 2](dog-park-2.jpg)
+
+# Links
+
+[Strong Dog Energy YouTube](https://www.youtube.com/@strongdogenergy/featured)
